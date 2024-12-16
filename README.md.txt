@@ -1,0 +1,1 @@
+This is my Sememester 1 Assignment examples
